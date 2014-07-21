@@ -1,0 +1,2 @@
+Turkce-Ingilizce-Sozluk
+=======================
